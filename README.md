@@ -1,1 +1,1 @@
-pes polytechnic
+ polytechnic college
